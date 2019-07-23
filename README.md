@@ -79,3 +79,5 @@ die than glow
 ## Notes
 
 ## Music Video
+
+hitech runners / last shot is a Polish rundown bus stop
