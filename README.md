@@ -25,7 +25,7 @@ die than glow
 in the shadows for that sake (matters)
 with no blows to the head
 i’ve put no mark up 
-for what counts as a threat
+for what counts as a threat (death)
 coz
 what i’m passing no matter the cost
 deliver(s) the outcome
