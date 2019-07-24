@@ -26,9 +26,9 @@ in the shadows for that sake (matters)
 with no blows to the head
 i’ve put no mark up 
 for what counts as a threat
-
+coz
 what i’m passing no matter the cost
-deliver the outcome
+deliver(s) the outcome
 with as little force often
 found it’s too much
 to repay the latter at the all time low
