@@ -150,3 +150,39 @@ human comes back to a home lab where it put itself in a machine but first pulls 
 **that i’m after coz i’d rather**
 
 **die than glow**
+
+/// MOTHNODE_ RUNNERS [FULL SONG]
+
+/// I FEEL THE ONSET OF INCOMING STEP UP OF THE GAME. “REPAY THE SWEAT WITH BLOOD.”
+. /// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// BEAT_ NetuH (the god of atmosphere) /// TARGET_ HC_SG112_RUNNERS /// STATUS_ FULL SONG PROTOTYPE
+.
+/// LISTEN TO REGULAR SONG DEV /// MORE ACCESS @mothnode
+#cyberunk #futura #rap #polskitrap
+.
+/// LYRICS
+runners runners
+
+brute force, got no backup
+gotta run ahead of most
+mind it’s not the spotlight
+that i’m after coz i’d rather
+die than glow
+
+in the shadows for that sake
+with no blows to the head
+i’ve put no mark up
+for what counts as threat
+
+what i’m passing no matter the cost
+deliver the outcome with as little force
+often found it’s too much to repay the latter
+at the all time low treated like a dog of pavlov’s
+to repay the sweat with blood
+this transaction is already done
+already closed all the (fucking) raw force
+is already done ya already closed
+all the (fucking) raw force
+.
+/// NODE STEMS #hitechcrime #humanedge #edm #multilingual #producer #trapmusic #baldgang #beardgang #twitchcreative #startup #prototype #song #darktrap
+40w
